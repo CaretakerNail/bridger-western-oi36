@@ -1,4 +1,4 @@
-
+rare Script for bridger western is the best bridger western Script, featuring auto-heal and esp. Safe and powerful for all your needs.
 
 
 
